@@ -1,2 +1,0 @@
-# Dia-del-yoyo
-info
